@@ -1,1 +1,1 @@
-armando é foda
+armando é foda e pedro tb
